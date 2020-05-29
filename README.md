@@ -1,2 +1,2 @@
-# SerpentGaming
+# serpentgaming
 GAMER/STREAMER
